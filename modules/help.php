@@ -1,0 +1,1 @@
+sta iiiima novo kod tebe jedno te isto kod mene
